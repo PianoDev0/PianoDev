@@ -1,0 +1,2 @@
+- 👋 Ahoj já jsem @KlavirniVirtuoz
+- 👀 Zajimám se o mc servery
